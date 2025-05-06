@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 Studying Computer Science at University of Toronto<br>👷🏼‍♂️ Building Sprout - connecting students to clubs & societies<br>🇭🇰 Hong Kong | 🇨🇦 Canada
+🎓 Studying Computer Science at University of Toronto<br>🇭🇰 Hong Kong | 🇨🇦 Canada
 
 
 ## 🌐 Socials:
